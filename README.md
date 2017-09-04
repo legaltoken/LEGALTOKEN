@@ -1,0 +1,2 @@
+# LEGALTOKEN
+ICO
